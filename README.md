@@ -48,7 +48,7 @@ _aka how I fool people into thinking I know stuff_
 
 ## 📫 Reach Me  
 If you want to reach me (coz I need help):  
-📧 **danielekene68@gmail.com** _(I’ll reply when I reply)_  
+📧 **danielekene6b@gmail.com** _(I’ll reply when I reply)_  
 Or if you're lazy, just click the link on my profile. Gracias 😎
 
 ---
